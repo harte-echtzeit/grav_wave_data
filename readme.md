@@ -1,0 +1,1 @@
+these are gravitational wave samples somewhat stolen from here ~> https://www.gw-openscience.org/audiogwtc1/
